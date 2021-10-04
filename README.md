@@ -1,0 +1,2 @@
+# How-to-Get-Scouted-in-Football
+A football can have upwards of 10 to 15 mentors or more, contingent upon the group. Beside the lead trainer, you have your offense and guard facilitators, the hostile and cautious line mentors, recipient mentor, quarterback mentor, and protective back mentor. You may even have a security mentor, a linebacker mentor, and colleagues that assistance out. Discover what you need to know to be a 1 2 1 Football coaching.
